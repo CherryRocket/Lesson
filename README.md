@@ -11,3 +11,10 @@
 
 [daun](https://github.com/sazhod)
 [krutoi](https://github.com/CherryRocket)
+
+![krutoi](https://avatars1.githubusercontent.com/u/46626251?s=460&v=4)
+
+kak skazal dolbaeb:
+
+> vertolet letit
+> tvoya mat pogib
