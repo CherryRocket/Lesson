@@ -10,3 +10,4 @@
 <h1> eee dolbaeb </h1>
 
 [daun](https://github.com/sazhod)
+[krutoi](https://github.com/CherryRocket)
